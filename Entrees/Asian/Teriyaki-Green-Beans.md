@@ -1,20 +1,28 @@
-TERIYAKI GREEN BEANS
+# TERIYAKI GREEN BEANS
 
 https://www.plainchicken.com/teriyaki-green-beans/
 
+---
+
 Yield: 4 people
-Prep Time 5 minsCook Time 11 minsTotal Time 16 mins
+
+Prep Time: 5 mins
+
+Cook Time: 11 mins
+
+Total Time: 16 mins
+
+---
 
 Ingredients:
-
-1 lb fresh green beans cut into 1-inch pieces
-8- oz fresh mushrooms sliced
-1 shallot diced or onion
-3 Tbsp butter
-1 tsp minced garlic
-¼ cup teriyaki sauce
-½ tsp sesame seeds
-Water checstnuts (optional)
+- 1 lb fresh green beans cut into 1-inch pieces
+- 8- oz fresh mushrooms sliced
+- 1 shallot diced or onion
+- 3 Tbsp butter
+- 1 tsp minced garlic
+- ¼ cup teriyaki sauce
+- ½ tsp sesame seeds
+- Water checstnuts (optional)
 
 
 Instructions:
