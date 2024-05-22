@@ -3,33 +3,33 @@ Original: http://serendipityandspice.com/chai-latte-snickerdoodle-cookie-recipe/
 ### Ingredients
 
 Cookie Ingredients:
-2 C sugar
-2 tsp. Wildtree Chai Tea Mix
-2 tsp ground cinnamon
-1 tsp ground ginger
-1/2 tsp ground allspice
-1 C butter, room temp
-2 eggs, room temp
-1 1/2 tsp vanilla
-2 3/4 C flour
-2 tsp cream of tartar
-1 tsp baking soda
-1/8 tsp salt
-Chocolate Ingredients:
-1 bag of Ghirardelli white chocolate wafers
+- 2 C sugar
+- 2 tsp. Wildtree Chai Tea Mix
+- 2 tsp ground cinnamon
+- 1 tsp ground ginger
+- 1/2 tsp ground allspice
+- 1 C butter, room temp
+- 2 eggs, room temp
+- 1 1/2 tsp vanilla
+- 2 3/4 C flour
+- 2 tsp cream of tartar
+- 1 tsp baking soda
+- 1/8 tsp salt
+- Chocolate Ingredients:
+- 1 bag of Ghirardelli white chocolate wafers
 
 
 Icing Ingredients (I don't do this):
-2 egg whites
-1 C powder sugar
-1/2 tsp cream of tartar
-1 tsp vanilla
-Green and red gel food coloring
+- 2 egg whites
+- 1 C powder sugar
+- 1/2 tsp cream of tartar
+- 1 tsp vanilla
+- Green and red gel food coloring
 
 Alternate Icing (this is what I do instead of above):
-White chocolate chips 
-Butter (to desired consistency, ~1 to 2 Tbs) 
-Note: To fix seized chocolate, add boiling water 1 Tbs at a time stiring vigourously until it reaches desired liquid consistency. 
+- White chocolate chips 
+- Butter (to desired consistency, ~1 to 2 Tbs) 
+- Note: To fix seized chocolate, add boiling water 1 Tbs at a time stiring vigourously until it reaches desired liquid consistency. 
 
 ## Instructions
 ### Cookie Directions:
