@@ -3,37 +3,27 @@ Makes 2 dozen Cookies
 
 For the topping:
 
-1/3 cup sugar
-
-1 teaspoon ground cinnamon
+- 1/3 cup sugar
+- 1 teaspoon ground cinnamon
 
 
 For the cookies:
 
-1/2 cup canola oil
+- 1/2 cup canola oil
+- 1 cup sugar
+- 1/4 cup pure maple syrup
+- 3 tablespoons almond milk (Or preferred non-dairy milk)
+- 1 teaspoon vanilla extract
+- 1 teaspoon chocolate extract (or more vanilla extract)
+- 1 2/3 cups flour
+- 1/2 cup unsweetened cocoa powder
+- 1 teaspoon baking soda
+- 1/4 teaspoon salt
+- 1/2 teaspoon cinnamon
+- 1/2 teaspoon cayenne
 
-1 cup sugar
 
-1/4 cup pure maple syrup
-
-3 tablespoons almond milk (Or preferred non-dairy milk)
-
-1 teaspoon vanilla extract
-
-1 teaspoon chocolate extract (or more vanilla extract)
-
-1 2/3 cups flour
-
-1/2 cup unsweetened cocoa powder
-
-1 teaspoon baking soda
-
-1/4 teaspoon salt
-
-1/2 teaspoon cinnamon
-
-1/2 teaspoon cayenne
-
+## Instructions
 
 TIP: When measuring oil, measure the maple syrup at the same time so it doesn't stick to the measuring cup. 
 
