@@ -1,11 +1,9 @@
-COOK TIME: 10 MINUTES
+### INGREDIENTS
+- 1/2 cup Balsamic Vinegar
+- 2 tablespoons brown sugar
+- 1/2 cup fresh blackberries
 
-INGREDIENTS
-1/2 cup Balsamic Vinegar
-2 tablespoons brown sugar
-1/2 cup fresh blackberries
-
-INSTRUCTIONS
+### INSTRUCTIONS
 Heat the balsamic vinegar, sugar and blackberries in a small pan over a low-medium heat for about 10 minutes until it coats the back of a spoon like syrup.
 
 (Optional) Strain the vinegar mixture into a small bowl pushing the blackberries with the spoon to retrieve as much liquid as possible.
